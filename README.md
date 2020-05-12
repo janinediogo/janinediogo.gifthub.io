@@ -1,2 +1,2 @@
-# janinediogo.gifthub.io
+# http://janinediogo.gifthub.io
 Minha página
